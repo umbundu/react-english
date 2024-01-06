@@ -1,1 +1,1 @@
-# start of react js on min channel
+# start of react js on my channel
